@@ -10,7 +10,7 @@ My name is Alexander, I mainly create mods for video games, but I'd also love to
   - OMEGAONE
   - Turrets Plus
 
-- Terraria (in the future)
+- Terraria (nothing public yet)
 
 - Plants vs Zombies Garden Warfare 2 (nothing public yet)
 
