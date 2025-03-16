@@ -9,12 +9,15 @@ My name is Alexander, I mainly create mods for video games, but I'd also love to
   - OMEGAZERO
   - OMEGAONE
   - Turrets Plus
+  - JAVA?!??!?!?!?!!!??! (soon (TM))
 
 - Terraria (nothing public yet)
 
 - Plants vs Zombies Garden Warfare 2 (nothing public yet)
 
 - Factorio (in the future)
+
+- Cosmoteer (in the future)
 
 ## 📞 Contact Info
 
