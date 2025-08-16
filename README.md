@@ -21,4 +21,5 @@ My name is Alexander, I mainly create mods for video games, but I'd also love to
 
 ## 📞 Contact Info
 
-- I mainly use Discord, and only Discord. My username is **`888_alexander_888`**.
+- My main Discord account got suspended falsely. Please do not send me DMs!
+
