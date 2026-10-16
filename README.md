@@ -36,7 +36,7 @@ I make things in:
 Contact me about my things (or just to chat, that's fine too):
 
 - My main Discord account got falsely suspended. Please do not send me DMs there, as I won't be able to respond to them.
-- Here's my alt instead: `alexander888alexander`
+- Here's my alt instead: `alternate_alex`
 
 
 
